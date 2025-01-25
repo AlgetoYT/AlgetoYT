@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AlgetoYT
+- 👀 I’m interested in Roblox and coding LUA
+- 🌱 I’m currently learning Math, English
+- 💞️ I’m looking to collaborate on (NOTHING)
+- 📫 How to reach me: Discord-algetoyt
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Im Russian and i dont care what is your age
